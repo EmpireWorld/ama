@@ -22,11 +22,11 @@ Anything means *anything*. Personal questions. Money. Work. Life. Code. Whatever
 
 You can find me in the below social networks: (I am missing? let me know where.)
 
-- [Twitter](https://twitter.com/): [EmpireWorld1393](https://twitter.com/EmpireWorld1393)
-- [Facebook](https://www.facebook.com/): [EmpireWorld](https://www.facebook.com/hasan.bayat.79230)
-- [LinkedIn](https://www.linkedin.com/): [Hasan Bayat](https://www.linkedin.com/in/hasan-bayat-58aa9613a/)
-- [GitHub](https://github.com): [EmpireWorld (Hasan Bayat)](https://github.com/EmpireWorld/)
-- [Google Plus](https://plus.google.com/): [Hasan Bayat](https://plus.google.com/117809252461053829467)
+- Twitter: [EmpireWorld1393](https://twitter.com/EmpireWorld1393)
+- Facebook: [EmpireWorld](https://www.facebook.com/hasan.bayat.79230)
+- LinkedIn: [Hasan Bayat](https://www.linkedin.com/in/hasan-bayat-58aa9613a/)
+- GitHub: [EmpireWorld (Hasan Bayat)](https://github.com/EmpireWorld/)
+- Google Plus: [Hasan Bayat](https://plus.google.com/117809252461053829467)
 
 ### Links
 
